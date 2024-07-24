@@ -1,0 +1,7 @@
+- [http://laurahaatainen.github.io/](http://laurahaatainen.github.io/)
+- [https://www.youtube.com/channel/UC_u9L6eOE03nrJBDFWmgspg](https://www.youtube.com/channel/UC_u9L6eOE03nrJBDFWmgspg)
+- [https://medium.com/@LauraHaatainen](https://medium.com/@LauraHaatainen)
+- [https://www.quora.com/profile/Laura-Haatainen-1](https://www.quora.com/profile/Laura-Haatainen-1)
+- [https://www.reddit.com/user/Ok-Food7328/](https://www.reddit.com/user/Ok-Food7328/)
+- [https://x.com/LauraHaatainen9](https://x.com/LauraHaatainen9)
+- [https://www.pinterest.com/LauraHaatainen9/](https://www.pinterest.com/LauraHaatainen9/)
